@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @layalWanni
+- 🌱 I’m currently studying Software Engineering and Systems Analysis and Development
+- 📫 nissolelo03@gmail.com
+- 🟦 Facebook: Layal Al Wanni
+- ❤️ Instagram: @Wannilayal
